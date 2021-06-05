@@ -1,2 +1,2 @@
 # shisupervisor her gelen bi star atsın la :D
-https://discord.gg/serendiasquad
+https://discord.gg/wgwpxp4hnf
